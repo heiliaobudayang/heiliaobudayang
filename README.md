@@ -1,4 +1,28 @@
-### Hi there 👋
+### 黑料不打烊最新地址 👋 (最新更新时间2023-05-16)
+
+黑料不打烊短网址 https://hl.cool
+
+黑料不打烊备用线路 https://heiliao.cool
+
+黑料不打烊备用线路 https://heiliao.cc
+
+黑料不打烊永久地址（需科学⬆️网工具）https://heiliao.tv
+
+🤝商务合作🤝请电报(Telegram)联系 https://t.me/didiao
+
+----------------------------
+
+网址打不开？？？
+
+1.请切换网络 WIFI/4G/5G 或者使用 科学上网工具（VPN）
+
+2.请拷贝完整地址到浏览器访问， 有前缀 https://
+
+3.请苹果手机使用Safari浏览器、安卓手机使用Chrome浏览器，不要用UC和QQ浏览器。
+
+4.以上方法都不行请下载蚂蚁加速器：(https://heiliao.link/myvpn/) 科学上网工具
+
+请把网址分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
 
 <!--
 **heiliaobudayang/heiliaobudayang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
