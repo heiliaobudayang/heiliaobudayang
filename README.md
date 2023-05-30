@@ -28,7 +28,7 @@
 
 请把网址分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
 
-（📨发送任意消息到邮箱 <a style="color:#ff0000;">heiliaobudayang@gmail.com</a> 自动获取黑料不打烊最新网址）
+（📨发送任意消息到邮箱 heiliaobudayang@gmail.com 自动获取黑料不打烊最新网址）
 
 <!--
 **heiliaobudayang/heiliaobudayang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
