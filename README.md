@@ -26,7 +26,7 @@
 
 3.请苹果手机使用 <a href="https://apps.apple.com/cn/app/safari/id1146562112">Safari</a> 浏览器、安卓手机使用 <a href="https://www.google.cn/chrome/">Chrome</a> 浏览器，不要用UC和QQ浏览器。
 
-4.以上方法都不行请下载蚂蚁加速器：(https://hlurl.xyz/vpn/) 科学上网工具
+4.以上方法都不行请下载蚂蚁加速器：(https://hl01.pro/vpn/) 科学上网工具
 
 请把网址分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
 
