@@ -1,10 +1,10 @@
-### 📣 黑料不打烊🆕最新地址 👋 (最新更新时间2024-04-17 ，建议收藏本页面)
+### 📣 黑料不打烊🆕最新地址 👋 (最新更新时间2024-04-20 ，建议收藏本页面)
 
-黑料不打烊🆕最新线路1️⃣ https://heiliao487.pro
+黑料不打烊🆕最新线路1️⃣ https://heiliao488.pro
 
-黑料不打烊🆕最新线路2️⃣ https://heiliao488.pro
+黑料不打烊🆕最新线路2️⃣ https://heiliao489.pro
 
-黑料不打烊🆕最新线路3️⃣ https://heiliao489.pro
+黑料不打烊🆕最新线路3️⃣ https://heiliao490.pro
 
 黑料不打烊备用线路 https://heiliao.cool
 
@@ -12,7 +12,7 @@
 
 黑料不打烊永久地址（需科学⬆️网工具）<a href="https://heiliao.tv/">heiliao.tv</a>
 
-黑料不打烊永久地址（需科学⬆️网工具）<a href="http://heiliao.su/">heiliao.su</a>
+黑料不打烊永久地址（需科学⬆️网工具）<a href="https://heiliao.su/">heiliao.su</a>
 
 🤝商务合作🤝请电报(Telegram)联系 https://t.me/didiao
 
@@ -26,7 +26,7 @@
 
 3.请苹果手机使用 <a href="https://apps.apple.com/cn/app/safari/id1146562112">Safari</a> 浏览器、安卓手机使用 <a href="https://www.google.cn/chrome/">Chrome</a> 浏览器，不要用UC和QQ浏览器。
 
-4.以上方法都不行请下载蚂蚁加速器：(https://hl001.xyz/vpn/) 科学上网工具
+4.以上方法都不行请下载蚂蚁加速器：(https://hl002.xyz/vpn/) 科学上网工具
 
 请把网址分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
 
